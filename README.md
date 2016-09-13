@@ -4,3 +4,4 @@
 ![image](https://github.com/tucici/Progress/raw/master/QQ20160913-0.png)
 ![image](https://github.com/tucici/Progress/raw/master/QQ20160913-1.png)
 ![image](https://github.com/tucici/Progress/raw/master/QQ20160913-2.png)
+![image](https://github.com/tucici/Progress/raw/master/QQ20160913-3.png)
